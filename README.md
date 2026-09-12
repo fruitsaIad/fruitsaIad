@@ -12,8 +12,10 @@ __
 [MY WIFE OML MY *WIFE*!!! ILYSMM](https://github.com/gracerockysavepax)
 
 ‘‘‘ *(only ppl I have n love btw.)*
+___
 
 ***╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭***
+___
 
 *`not actually 'rude',i'm selectively nice and there's a possibility you wouldn't be selected.`*
 

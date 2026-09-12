@@ -5,7 +5,7 @@ __
                                  
 
                                   
-    the lovers.
+<p align="center">    the lovers.
 
 [precious brother dear](https://github.com/d0lledUpDeci3t)
 

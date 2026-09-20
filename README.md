@@ -14,7 +14,7 @@ __
 ‘‘‘ *(only ppl I have n love btw.)*
 ___
 
-***╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭***
+**╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭**
 ___
 
 *`not actually 'rude',i'm selectively nice and there's a possibility you wouldn't be selected.`*
@@ -26,5 +26,6 @@ ___
 ` *ok so
 "can I be Ur frie" i have problems with these kind of stuff,but feel free to. I normally don't ask for friends...so yh uhhh pls bmf ig??*
 
-`` *i only type like this because it's common,but i swear i type in such a fancy and clear way you'll think i came straight from the 1912's.*
+`` ***byi; I'm weird and goofy asf and my humour sucks.i'd say I'm pretty annoying when someone's very close to me so I might unintentionally piss you off sometimes.(sorry ml).. I'm hypersensitive and a huge drama queen/King.im socially anxious so PLS don't be mad at me for not wanting to meet your friends.***
+*you can vent to me without asking.*
 ___

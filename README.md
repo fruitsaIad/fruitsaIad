@@ -1,4 +1,4 @@
-¨ |___\
+|___| ¨
 ![bleh](https://github.com/fruitsaIad/ashes/blob/dd33f1e2a45089c922f5c4340613f5d6742b2e64/187f8518-84c2-43dd-ab17-2b2e074c3ec6.jpeg)
   |___| ¨
                                  

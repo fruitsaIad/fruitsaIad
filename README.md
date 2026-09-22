@@ -1,12 +1,11 @@
 __
 ¨ |___|
-![bleh](https://github.com/thomassheIby/ashes/blob/994f6762011c83298e0daaf5a1aa3ced3d6c91f9/sillies%20_p.jfif)
+![bleh](https://github.com/fruitsaIad/ashes/blob/dd33f1e2a45089c922f5c4340613f5d6742b2e64/187f8518-84c2-43dd-ab17-2b2e074c3ec6.jpeg)
   |___| ¨
                                  
 
                                   
-<p align="center">    the lovers.
-(Wilson is my only f/o)
+<p align="center">    heh
 
 [precious brother dear](https://github.com/dolli3ciful)
 
@@ -14,8 +13,6 @@ __
 
 ‘‘‘ *(only ppl I have n love btw.)*
 ___
-
-**╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭**
 ___
 
 *`not actually 'rude',i'm selectively nice and there's a possibility you wouldn't be selected.`*

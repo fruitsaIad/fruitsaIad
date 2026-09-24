@@ -4,7 +4,7 @@
                                  
 
                                   
-<p align="center">    heh
+<p align="center">    acceptance.
 
 ' ' ' [precious brother dear ily ily/p](https://github.com/dolli3ciful)
 

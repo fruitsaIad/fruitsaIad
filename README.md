@@ -1,5 +1,5 @@
 |___| ¨
-![bleh](https://github.com/fruitsaIad/ashes/blob/b7265a81e26c3f3b5c404a395e62b5a68a0aed1c/c093d0be-2172-4b3a-a197-746afce84957.jpg)
+![bleh](https://github.com/fruitsaIad/ashes/blob/c47425191792937ee32e92e389603f7310d41d5a/Untitled474_20260924140427.png)
   |___| ¨
                                  
 

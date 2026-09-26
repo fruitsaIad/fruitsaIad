@@ -4,11 +4,11 @@
                                  
 
                                   
-<p align="center">    isn't she lovely ?
-
-
-
-
+<p align="center">    isn't she lovely?
+ 
+ 
+ 
+ 
 ___
 ' ' ' [precious brother dear ily ily/p](https://github.com/dolli3ciful)
 
@@ -16,7 +16,8 @@ ___
 
 ' ' ' **(only ppl I have n love btw.)**
 ___
-___
+
+
 ___
 
 ' ' ' i LOVE self-isolating.it's so fun n better n comfortable.teehe!

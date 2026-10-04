@@ -15,6 +15,8 @@ ___
 ' ' ' [MY WIFE OML MY *WIFE*!!! ILYSMM](https://github.com/gracerockysavepax)
 
 ' ' ' **(only ppl I have n love btw.)**
+
+' ' ' [OH HI SMILK2!](https://GitHub.com/vampire-of-fate)
 ___
 
 

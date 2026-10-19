@@ -1,4 +1,4 @@
-|___| ¨
+  |___| ¨
 ![bleh](https://github.com/fruitsaIad/ashes/blob/8e5160469f64a05ee87bbc794975bffb450f034e/62ab5711-e6cb-4b6d-b52c-277f72fcf0e7~3.jpeg)
   |___| ¨
                                  
@@ -6,8 +6,14 @@
                                   
 <p align="center">    " isn't she lovely? "
  
- |
- 🎀
+ 
+<p align="center"> " isn't she wonderful? "
+
+<p align="center"> " isn't she precious? "
+
+<p align="center"> " less than one minute old. "
+
+<p align="center"> —. \ 🎀 \ .—
  
 ___
 ' ' ' [precious brother dear ily ily/p](https://github.com/dolli3ciful)
@@ -17,11 +23,6 @@ ___
 ' ' ' [OH HI SMILK2!](https://GitHub.com/vampire-of-fate)
 
 ' ' ' **(only ppl I have n love btw.)**
-
-___
-
-' ' ' i LOVE self-isolating.it's so fun n better n comfortable.teehe!
-
 ___
 
 ' ' ' *"can I be Ur frie" i have problems with these kind of stuff,but feel free to. I normally don't ask for friends but I try sometimes mostly w ppl who don't have many friends...so yh uhhh pls bmf ig??*

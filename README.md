@@ -1,4 +1,5 @@
-|___ '' <p align="right">    ___|
+  ___              ___
+ | <p align="right">  |
 
 ![bleh](https://github.com/fruitsaIad/ashes/blob/8e5160469f64a05ee87bbc794975bffb450f034e/62ab5711-e6cb-4b6d-b52c-277f72fcf0e7~3.jpeg)
 

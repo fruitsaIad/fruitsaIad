@@ -1,28 +1,18 @@
 ( <p align="right"> )
 
-![bleh](https://github.com/fruitsaIad/ashes/blob/8e5160469f64a05ee87bbc794975bffb450f034e/62ab5711-e6cb-4b6d-b52c-277f72fcf0e7~3.jpeg)
+![bleh](https://github.com/fruitsaIad/ashes/blob/04f6590f334b7ab35b6317b8a004690c7ee0a31b/Untitled493_20261020160952.png)
 
 ( <p align="right"> )
-                                 
 
-                                  
-<p align="center">    " isn't she lovely? "
- 
- 
-<p align="center"> " isn't she wonderful? "
 
-<p align="center"> " isn't she precious? "
-
-<p align="center"> " less than one minute old. "
-
-<p align="center"> —. \ 🎀 \ .—
+<p align="center"> —. \ 🦊 \ .—
  
 ___
 ' ' ' [precious brother dear ily ily/p](https://github.com/dolli3ciful)
 
-' ' ' [MY WIFE OML MY *WIFE*!!! ILYSMM](https://github.com/gracerockysavepax)
+' ' ' [the Stu to my billy ilysm](https://github.com/gracerockysavepax)
 
-' ' ' [OH HI SMILK2!](https://GitHub.com/vampire-of-fate)
+' ' ' [hi puppy/p](https://GitHub.com/vampire-of-fate)
 
 ' ' ' **(only ppl I have n love btw.)**
 ___

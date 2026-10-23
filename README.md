@@ -10,16 +10,12 @@
 ___
 ' ' ' [precious brother dear ily ily/p](https://github.com/dolli3ciful)
 
-' ' ' [the Stu to my billy ilysm](https://github.com/gracerockysavepax)
-
 ' ' ' [hi puppy/p](https://GitHub.com/vampire-of-fate)
 
 ' ' ' **(only ppl I have n love btw.)**
 ___
 
 ' ' ' *"can I be Ur frie" i have problems with these kind of stuff,but feel free to. I normally don't ask for friends but I try sometimes mostly w ppl who don't have many friends...so yh uhhh pls bmf ig??*
-
-' ' ' **byi; I'm weird and goofy asf and my humour sucks.i'd say I'm pretty annoying when someone's very close to me so I might unintentionally piss you off sometimes.(sorry ml).. I'm hypersensitive and a huge drama King.im socially awkward and maybe socially anxious so PLS don't be mad at me for not wanting to meet your friends.i also have NO patience.**
 
 ***you can vent to me without asking.anytime.any hour.day.week.month.year.ill listen and help.i just love being the therapist friend.i mean it.it's not a burden to me.(I also rarely vent as well specifically if you don't know how to comfort someone, doesn't mean I don't trust you! just don't want to lay all my back on you.i don't want to see you fall to the ground because of me.) also,if I'm breaking any boundaries or making you uncomfortable ALWAYS tell me because I'm autistic and might not notice it. this is more targeted online since irl I can read social cues very easily unless I'm being an yapper.***
 

@@ -12,7 +12,7 @@ ___
 
 ' ' ' [hi puppy/p](https://GitHub.com/vampire-of-fate)
 
-' ' ' [u big chud](https://GitHub.com/tellthatmick)
+' ' ' [u big chud kisses lips 🤑/p](https://GitHub.com/tellthatmick)
 
 ' ' ' **(only ppl I have btw.)**
 ___

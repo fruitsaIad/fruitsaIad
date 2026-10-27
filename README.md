@@ -1,11 +1,11 @@
 ( <p align="right"> )
 
-![bleh](https://github.com/fruitsaIad/ashes/blob/04f6590f334b7ab35b6317b8a004690c7ee0a31b/Untitled493_20261020160952.png)
+![bleh](https://github.com/fruitsaIad/ashes/blob/7b8b6f151a8c1544ef58b6abee830f741e0c44e1/Untitled500_20261026215404.png)
 
 ( <p align="right"> )
 
 
-<p align="center"> —. \ 🦊 \ .—
+<p align="center"> —. \ I love my deep 🎀 <33 \ .—
  
 ___
 ' ' ' [precious brother dear ily ily/p](https://github.com/dolli3ciful)

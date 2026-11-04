@@ -3,6 +3,8 @@
 ![idiots](https://github.com/fruitsaIad/ashes/blob/7b8b6f151a8c1544ef58b6abee830f741e0c44e1/Untitled500_20261026215404.png)
 
 <p align="center"> ♡
+ 
+[hi chudeli ilyt](https://GitHub.com/tellthatmick)
 
 **random stuff down there about me ok**
 

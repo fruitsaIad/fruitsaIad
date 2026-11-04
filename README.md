@@ -8,6 +8,6 @@
 
 **random stuff down there about me ok**
 
-*"can I be Ur frie" idgaf but sure bud,try.*
+*"can I be Ur frie" sure bud ^-^*
 
 *asocial introvert peep that barely shows up or talk to anyone. I'd prefer being alone but eh sure i like being kind so vent all you want.also, depression.type shit.*

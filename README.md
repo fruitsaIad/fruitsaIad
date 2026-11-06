@@ -4,7 +4,7 @@
 
 <p align="center"> ♡
  
-[hi chudeli ilyt](https://GitHub.com/tellthatmick)
+[my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 
 **random stuff down there about me ok**
 

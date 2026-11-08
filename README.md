@@ -1,7 +1,6 @@
  <p align="right"> 
 
-![idiots](https://github.com/fruitsaIad/ashes/blob/7b8b6f151a8c1544ef58b6abee830f741e0c44e1/Untitled500_20261026215404.png)
-
+![idiot](https://github.com/fruitsaIad/ashes/blob/ab3fe739f26f38ace9561da1bea0d0b8e7479f46/44f051e052d86630b73d269eae31b33e.jpg)
 <p align="center"> ♡
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)

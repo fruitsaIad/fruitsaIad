@@ -1,6 +1,8 @@
  <p align="right"> 
 
-![idiot](https://github.com/fruitsaIad/ashes/blob/02db755e427764660d1eba470af3c6dce45ac6f8/Untitled506_20261109171445.png)
+![idiot]()
+
+![yay](https://github.com/fruitsaIad/ashes/blob/02db755e427764660d1eba470af3c6dce45ac6f8/Untitled506_20261109171445.png)
 
 <p align="center"> 𝜗ৎ
  

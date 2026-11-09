@@ -2,6 +2,8 @@
 
 ![idiot](https://github.com/fruitsaIad/ashes/blob/02db755e427764660d1eba470af3c6dce45ac6f8/44f051e052d86630b73d269eae31b33e.jpg)
 
+___
+
 ![yay](https://github.com/fruitsaIad/ashes/blob/02db755e427764660d1eba470af3c6dce45ac6f8/Untitled506_20261109171445.png)
 
 <p align="center"> 𝜗ৎ

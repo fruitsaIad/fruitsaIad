@@ -9,4 +9,4 @@
 
 *"can I be Ur frie" sure bud ^-^*
 
-*asocial introvert peep that barely shows up or talk to anyone. I'd prefer being alone but eh sure i like being kind so vent all you want.also, depression.type shit.*
+*asocial introvert peep that barely shows up or talk to anyone (awkward asf online and irl unless close) I'd prefer being isolated but eh sure i like being kind and sweet so vent all you want.also, depression.type shit.(I'm actually pretty awesome if I say so myself)*

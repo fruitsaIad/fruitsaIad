@@ -1,7 +1,7 @@
  <p align="right"> 
 
 ![idiot](https://github.com/fruitsaIad/ashes/blob/ab3fe739f26f38ace9561da1bea0d0b8e7479f46/44f051e052d86630b73d269eae31b33e.jpg)
-<p align="center"> ♡
+<p align="center"> 𝜗ৎ
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 

@@ -1,6 +1,6 @@
  <p align="right"> 
 
-![idiot](https://github.com/fruitsaIad/ashes/blob/02db755e427764660d1eba470af3c6dce45ac6f8/44f051e052d86630b73d269eae31b33e.jpg)
+![idiot](https://github.com/fruitsaIad/ashes/blob/4f51e00dd74ac270a07dc2a98a9aedbdf9fa3465/makesweet-ktcxs2-ezgif.com-remove-background.gif)
 
 <p align="center"> 𝜗ৎ
  

@@ -15,3 +15,5 @@ ___
 **I love C+h but I'm feeling in that one mood where you don't even like ppl approaching you (parents ughhh stop)**
 
 ***quick info;; I'm mirror sharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***
+
+*I am also not CAV puzzles in any way I just kin smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*

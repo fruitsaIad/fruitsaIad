@@ -14,4 +14,4 @@ ___
 
 **I love C+h but I'm feeling in that one mood where you don't even like ppl approaching you (parents ughhh stop)**
 
-***I'm misanthropic to the point I hate human normal activities like yawning or chuckling or anything.***
+***quick info;; I'm mirror sharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***

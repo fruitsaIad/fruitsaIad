@@ -12,7 +12,7 @@ ___
 
 *asocial introvert peep that barely shows up or talk to anyone (awkward asf online and irl unless close) I'd prefer being isolated but eh sure i like being kind and sweet so vent all you want.also, depression.type shit.(I'm actually pretty awesome if I say so myself)*
 
-**I love C+h but I'm feeling in that one mood where you don't even like ppl approaching you (parents ughhh stop)**
+**C+h welcomed to anyone close or not unless I'm in a bad mood (which happens frequently) specifically when I come back to pt after a random depressive ep.**
 
 ***quick info;; I'm mirror sharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***
 

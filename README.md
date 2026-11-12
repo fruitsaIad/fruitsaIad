@@ -3,6 +3,8 @@
 ![idiot](https://github.com/fruitsaIad/ashes/blob/4f51e00dd74ac270a07dc2a98a9aedbdf9fa3465/makesweet-ktcxs2-ezgif.com-remove-background.gif)
 
 <p align="center"> 𝜗ৎ
+
+***there's exact 5 stars in my profile***
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 

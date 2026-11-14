@@ -4,7 +4,7 @@
 
 <p align="center"> 𝜗ৎ
 
-***there's exact 5 stars in my profile***
+***Patrick Jane yumeshipper!! my hubby yayy dbls dni***
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 

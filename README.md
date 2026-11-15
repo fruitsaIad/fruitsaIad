@@ -4,7 +4,7 @@
 
 <p align="center"> 𝜗ৎ
 
-***Patrick Jane yumeshipper!! my hubby yayy dbls dni***
+***Patrick Jane yumeshipper!! my hubby yayy fluidsharing bbtwbtw...***
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 
@@ -16,6 +16,6 @@ ___
 
 **C+h welcomed to anyone close or not unless I'm in a bad mood (which happens frequently) specifically when I come back to pt after a random depressive ep.**
 
-***quick info;; I'm mirror sharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***
+***quick info;; I'm mirror sharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes besides Patrick I'm soft-sharing.***
 
 *I am also not CAV puzzles in any way I just kin smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*

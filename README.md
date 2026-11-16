@@ -4,7 +4,7 @@
 
 <p align="center"> 𝜗ৎ
 
-***Patrick Jane yumeshipper!! my hubby yayy fluidsharing bbtwbtw...***
+***Patrick Jane fictionchain...also yume! fluidsharing. (I'd prefer you calling me him tho,I only yume for personal reasons)***
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 

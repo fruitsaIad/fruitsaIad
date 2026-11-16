@@ -1,7 +1,6 @@
  <p align="right"> 
 
-![idiot](https://github.com/fruitsaIad/ashes/blob/4f51e00dd74ac270a07dc2a98a9aedbdf9fa3465/makesweet-ktcxs2-ezgif.com-remove-background.gif)
-
+![idiot](https://github.com/fruitsaIad/ashes/blob/300bd9326717a9f331724175d5c66100a674eaeb/56e698129f5c3df268bbd00dd0cecb02.jpg)
 <p align="center"> 𝜗ৎ
 
 ***Patrick Jane fictionchain...also yume! fluidsharing. (I'd prefer you calling me him tho,I only yume for personal reasons)***

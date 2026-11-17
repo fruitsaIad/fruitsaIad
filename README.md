@@ -20,7 +20,7 @@ ___
 
 **C+h welcomed to anyone close or not—unless I'm in a bad mood (which happens frequently) i also go nonverbal btw and will leave social media for idk how long,also shitty at social cues and slow asf all autism stuff dont mind it just remember iggg**
 
-**↑ btwww sowyyy okk ik u don't care guh more info but adhd stuff so I'm hyperactive adhd ok and ehh when I join pt,if you're gonna be afk or busy for too long I won't bear it and will leave the game... heh don't confuse the way I run around or in circles for no reason or yapping abt random and I mean random shi as happy or whimsy I'm genuinely tweaking and going insane it's unreal I can't even sleep bc of it while I'm typing this there's some random bullshi in my head that changes every millisecond AND I literally have to do it irl too bc I can't control it ughhh still not medicated (does that even work fr??) lazy parents tbh and yes remember ts I don't wanna get cried over for somt I can't control alr mate**
+**↑ btwww sowyyy okk ik u don't care guh more info but adhd stuff so I'm hyperactive adhd ok and ehh when I join pt,if you're gonna be afk or busy for too long I won't bear it and will leave the game... heh don't confuse the way I run around or in circles for no reason or yapping abt random and I mean random shi as happy or whimsy I'm genuinely tweaking and going insane it's unreal yes remember ts I don't wanna get cried over for somt I can't control alr mate**
 
 ___
 

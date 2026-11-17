@@ -12,12 +12,18 @@ ___
 
 *"can I be Ur frie" sure bud ^-^*
 
-*asocial introvert peep that barely shows up or talk to anyone (awkward asf online and irl unless close) I'd prefer being isolated but eh sure i like being kind and sweet so vent all you want.also, depression.type shit.(I'm actually pretty awesome if I say so myself)*
+*yes twin i love tea and sandwiches and im observative becuz im a silly mentally ill traumatized freak*
 
-**C+h welcomed to anyone close or not unless I'm in a bad mood (which happens frequently) i also go nonverbal btw and will leave dont mind it**
+*asocial introvert peep that barely shows up or talk to anyone (awkward asf online and irl unless close) I'd prefer being isolated but eh sure i like being kind and sweet so yes be urself and you can vent all you want i love being the therapist friend it's awesome making Pol hapi yayay I might have depression.type shit.(I'm actually pretty awesome if I say so myself uhhh)*
 
-***quick info;; I'm mirror sharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***
+___
+
+**C+h welcomed to anyone close or not—unless I'm in a bad mood (which happens frequently) i also go nonverbal btw and will leave social media for idk how long,also shitty at social cues and slow asf all autism stuff dont mind it just remember iggg**
+
+**↑ btwww sowyyy okk ik u don't care guh more info but adhd stuff so I'm hyperactive adhd ok and ehh when I join pt,if you're gonna be afk or busy for too long I won't bear it and will leave the game... heh don't confuse the way I run around or in circles for no reason or yapping abt random and I mean random shi as happy or whimsy I'm genuinely tweaking and going insane it's unreal I can't even sleep bc of it while I'm typing this there's some random bullshi in my head that changes every millisecond AND I literally have to do it irl too bc I can't control it ughhh still not medicated (does that even work fr??) lazy parents tbh and yes remember ts I don't wanna get cried over for somt I can't control alr mate**
+
+___
+
+***I'm fluidsharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***
 
 *I am also not CAV puzzles in any way I just kin smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*
-
-*yes twin i love tea and sandwiches and im observative becuz im a silly mentally ill traumatized freak*

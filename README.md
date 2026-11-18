@@ -1,3 +1,7 @@
+![I'm hungry](https://github.com/fruitsaIad/dumdum/blob/ceb919756f46ddb68902c47c822e3c11595329d0/cutiora-filters-teal-mustard-20261118-160158.png)
+
+<p align="center"> 𝘸𝘩𝘰’𝘴 𝘵𝘩𝘪𝘴 𝘩𝘢𝘯𝘥𝘴𝘰𝘮𝘦 𝘨𝘢𝘭.../𝘫𝘬 𝘪𝘮 𝘶𝘨𝘭𝘦𝘬 😢
+
 <p align="center"> 𝜗ৎ
 
 ***Patrick Jane fictionchain hi call me that thanknyew***

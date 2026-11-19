@@ -24,6 +24,6 @@ ___
 
 ___
 
-***I'm fluidsharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for yumes I'm soft-sharing.***
+***I'm fluidsharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for any yumes of my kins except for puzzles I'm soft-sharing. for Jane's I'm hyper-sharing!***
 
-*I am also not CAV puzzles in any way I just c'link smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*
+*I am also not CAV puzzles in any way I just kin smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*

@@ -27,3 +27,7 @@ ___
 ***I'm fluidsharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for any yumes of my kins except for puzzles I'm soft-sharing. for Jane's I'm hyper-sharing!***
 
 *I am also not CAV puzzles in any way I just kin smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*
+
+___
+
+btw I'm agnostic so you can yap about your God or religion just fine,even a Bible verse or saying Jesus loves me/Satan loves me/etc anywho loves me I don't mind at all! I believe in anything and nothing at the same time I love all of you.Even though I have religious trauma, it's actually from THESE types of Christians that hate everything iykwim..but Jesus is cool asf in general

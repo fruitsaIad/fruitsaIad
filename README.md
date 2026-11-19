@@ -10,6 +10,8 @@
 
 ___
 
+# ╮ 𐙚  .
+
 *"can I be Ur frie" sure bud ^-^*
 
 *yes twin i love tea and I'm childish and im observative becuz im a silly mentally ill traumatized freak*
@@ -30,4 +32,6 @@ ___
 
 ___
 
-btw I'm agnostic so you can yap about your God or religion just fine,even a Bible verse or saying Jesus loves me/Satan loves me/etc anywho loves me I don't mind at all! I believe in anything and nothing at the same time I love all of you.Even though I have religious trauma, it's actually from THESE types of Christians that hate everything iykwim..but Jesus is cool asf in general
+btw I'm agnostic so you can yap about your God or religion just fine,even a Bible verse or saying Jesus loves me/Satan loves me/etc anywho loves me I don't mind at all! I believe in anything and nothing at the same time I love all of you.Even though I have religious trauma, it's actually from THESE types of Christians that hate everything iykwim..but Jesus is cool asf in general,I have favoritism in witchcraft tho I think it's very interesting!! please be yourself<3
+
+# ╮ 𐙚  .   

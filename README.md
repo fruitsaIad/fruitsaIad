@@ -5,6 +5,7 @@
 <p align="center"> 𝜗ৎ
 
 ***Patrick Jane fictionchain hi call me that thanknyew***
+ ***(also my romantic f/o but I prefer only ME being referred to his lover,to anyone I prefer y'all calling me HIM.)***
  
 [my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 
@@ -26,7 +27,7 @@ ___
 
 ___
 
-***I'm fluidsharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for any yumes of my kins except for puzzles I'm soft-sharing. for Jane's I'm hyper-sharing!***
+***I'm fluidsharing to any of my kins,so if ur ok w it I'll int if not I'll block you for your safety! also for any yumes of my kins except for puzzles I'm soft-sharing. for Jane's as in,kinself,I'm hyper-sharing! for yumeself, I'm non-sharing sorry.***
 
 *I am also not CAV puzzles in any way I just kin smg4 puzzles btw. (I don't treat that as canon lmao sorry) but it's a fun show.*
 

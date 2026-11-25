@@ -6,8 +6,6 @@
 
 ***Patrick Jane fictionchain hi call me that thanknyew***
  ***(also my romantic f/o but I prefer only ME being referred to his lover,to anyone I prefer y'all calling me HIM.) red john is mine btwbtw I don't think doubles exist for him lmao so glad***
- 
-[my cinnamon roll aww smooches](https://GitHub.com/tellthatmick)
 
 ___
 
